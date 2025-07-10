@@ -24,4 +24,4 @@
 
 马上收藏本站，开启你在2025年的“看片自由时代”。成人羞羞免费，一个真正为用户着想的日本AV首选平台！
 
-<span style="display:none;">[Canonical link]  ( ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/huy26111/riben01111 ）</span> 
